@@ -12,3 +12,7 @@ I believe that cocaine is God's way of saying, You're making too much money. **"
 Carpe, Carpe diem. Seize the day, boys. Make your lives extraordinary. **"John Keating"**
 - **How I Met Your Mother**<br>
 When it's after 2:00 a.m., just go to sleep because the decisions you make after 2:00 a.m. are the wrong decisions. **"Ted Mosby"**
+- **How I Met Your Mother**<br>
+But there are certain things in life where you know it's a mistake but you don't really know it's a mistake because the only way to really know it's a mistake is to make the mistake, and look back, and say, "Yep. That was a mistake." So, really, the bigger mistake would be to not make the mistake, because then you go your whole life not really knowing if something is a mistake or not. **"Lily Aldrin"**
+- **How I Met Your Mother**<br>
+Here's the thing about mistakes. Sometimes, even when you know something's a mistake, you gotta make it anyway. **"Ted Mosby"**
