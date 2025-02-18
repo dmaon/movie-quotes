@@ -10,3 +10,5 @@ Don't live in the past, you idiot! I taught you to live in the moment! **"Monkey
 I believe that cocaine is God's way of saying, You're making too much money. **"Robin Williams"**
 - **Dead Poets Society**<br>
 Carpe, Carpe diem. Seize the day, boys. Make your lives extraordinary. **"John Keating"**
+- **How I Met Your Mother**<br>
+When it's after 2:00 a.m., just go to sleep because the decisions you make after 2:00 a.m. are the wrong decisions. **"Ted Mosby"**
